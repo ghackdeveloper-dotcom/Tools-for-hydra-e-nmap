@@ -1,1 +1,1 @@
-Questo strumento e in fase di aggiornamenti e nuve versioni arriverà presto anche la versione per linux e macOS
+Il programma e stato rimosso, e tornerà disponibile non appena saranno sistemate alcune cose
