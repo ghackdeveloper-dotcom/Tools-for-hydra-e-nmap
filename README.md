@@ -1,1 +1,1 @@
-Il programma e stato rimosso, e tornerà disponibile non appena saranno sistemate alcune cose
+Il programma è stato rimosso, e tornerà disponibile non appena saranno sistemate alcune cose
